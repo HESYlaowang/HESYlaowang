@@ -1,8 +1,7 @@
 probably a programmer......
 or maybe a vtuber?
 
-follow my bilibili: 
-![](https://space.bilibili.com/496532261)
+follow my bilibili: https://space.bilibili.com/496532261
 
 ![](https://pic1.imgdb.cn/item/67f9e55288c538a9b5cb9aeb.jpg)
 maimaiDX rating 15000 confirmed
